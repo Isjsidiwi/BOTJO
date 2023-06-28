@@ -2,7 +2,7 @@
 This Script is for everyone, not for Sale. Jika dijual neraka menunggumu brother !
 
 <p align="center">
-	<img src="https://telegra.ph/faris-06-06-4)" width="35%" style="margin-left: auto;margin-right: auto;display: block;">
+	<img src="[https://telegra.ph/prtwer-06-28))" width="35%" style="margin-left: auto;margin-right: auto;display: block;">
 </p>
 <h1 align="center">THE_JO_BOT</h1>
 SUBSCRIBE YOUTUBE THE JO BOT
